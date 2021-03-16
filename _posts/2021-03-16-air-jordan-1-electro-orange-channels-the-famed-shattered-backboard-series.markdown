@@ -1,7 +1,7 @@
 ---
 title: Air Jordan 1 "Electro Orange" Channels the Famed "Shattered Backboard" Series
 date: 2021-03-16 02:13:00 Z
-exceprt: Jordan Brand‘s Summer 2021 Air Jordan collection is coming into focus, and
+excerpt: Jordan Brand‘s Summer 2021 Air Jordan collection is coming into focus, and
   the latest piece to be revealed is a new Air Jordan 1 “Electro Orange.” Boasting
   a white, black and orange color scheme that’s reminiscent of — though not directly
   associated with — the popular Air Jordan 1 “Shattered Backboard” line, the “Electro
