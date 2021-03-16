@@ -8,9 +8,9 @@ excerpt: Jordan Brand‘s Summer 2021 Air Jordan collection is coming into focus
   Orange” looks to serve as one of the Jumpman’s standout midsummer styles.
 ---
 
-[Jordan Brand](https://hypebeast.com/tags/jordan-brand)‘s Summer 2021 [Air Jordan](https://hypebeast.com/tags/air-jordan) collection is coming into focus, and the latest piece to be revealed is a new [Air Jordan 1](https://hypebeast.com/tags/air-jordan-1) “Electro Orange.” Boasting a white, black and orange color scheme that’s reminiscent of — though not directly associated with — the popular [Air Jordan 1 “Shattered Backboard”](https://hypebeast.com/2015/6/air-jordan-1-retro-high-shattered-backboard) line, the “Electro Orange” looks to serve as one of the Jumpman’s standout midsummer styles.
+![blog-1a.jpg](/uploads/blog-1a.jpg)
 
-![https___hypebeast.com_image_2021_03_air-jordan-1-electro-orange-555088-180-release-info-1.jpg](/uploads/https___hypebeast.com_image_2021_03_air-jordan-1-electro-orange-555088-180-release-info-1.jpg)
+[Jordan Brand](https://hypebeast.com/tags/jordan-brand)‘s Summer 2021 [Air Jordan](https://hypebeast.com/tags/air-jordan) collection is coming into focus, and the latest piece to be revealed is a new [Air Jordan 1](https://hypebeast.com/tags/air-jordan-1) “Electro Orange.” Boasting a white, black and orange color scheme that’s reminiscent of — though not directly associated with — the popular [Air Jordan 1 “Shattered Backboard”](https://hypebeast.com/2015/6/air-jordan-1-retro-high-shattered-backboard) line, the “Electro Orange” looks to serve as one of the Jumpman’s standout midsummer styles.
 
 Uppers are crafted entirely of leather. Heels, quarters, collar flaps and toeboxes are done up in white, with black used for contrast on the mudguard, eyestays and Swooshes. Signature “Electro Orange” appears on the high-gloss collar for a top-and-bottom contrast with the orange outsole. Further branding arrives via a black ball-and-wings logo on the collar flaps and a [Nike](https://hypebeast.com/tags/nike) tag on the black nylon tongue. White midsoles round off the look.
 
